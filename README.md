@@ -1,0 +1,1 @@
+<img src="[https://github.com/ariyazz/crack-fb/blob/master/Screenshot/Screenshot_20210708_045105.jpg](https://github.com/ariyazz/foto/blob/main/5696a187-8435-4e61-b1aa-00bed9f470bd.png)https://github.com/ariyazz/foto/blob/main/5696a187-8435-4e61-b1aa-00bed9f470bd.png" width="100%" alt="screenshot">
